@@ -1,16 +1,17 @@
 ### Hi there 👋
 
-<!--
-**Toky-RAKOTONIAINA/Toky-RAKOTONIAINA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- 👋 Hi, I'm Toky from SAYNA. It's digital school to learn all digitals jobs with a good family spirit and game way.
+- 👀 I' interested in code !
+- 🌱 I'm currently learning aal things about development and specifically ho to learn it.
+- 🗺 I'm looking to collaborate on many projects to see all the methodoly development in the world, good luck for me !
+- 💌 How to reach me : tokyfitrak@gmail.com
 
-Here are some ideas to get you started:
+<br><br>
+More about SAYNA : https://sayna.io/<br>
+More About me : - https://www.linkedin.com/in/toky-fitiavana-rakotoniaina-027341236/
+		- https://www.instagram.com/toky_rak/
+		- https://www.facebook.com/toky.rakotoniaina.7
+<br><br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+--> To the pleasure af exchangin and/or collaborating together <--
+|
