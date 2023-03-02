@@ -8,8 +8,8 @@
 
 <br><br>
 More about SAYNA : https://sayna.io/<br>
-More About me : - https://www.linkedin.com/in/toky-fitiavana-rakotoniaina-027341236/
-		- https://www.instagram.com/toky_rak/
+More About me : - https://www.linkedin.com/in/toky-fitiavana-rakotoniaina-027341236/<br>
+		- https://www.instagram.com/toky_rak/<br>
 		- https://www.facebook.com/toky.rakotoniaina.7
 <br><br>
 
