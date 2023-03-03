@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 👋 Hi, I'm Toky from SAYNA. It's digital school to learn all digitals jobs with a good family spirit and game way.
+- 👋 Hi, I'm Toky a SAYNA learner. It's digital school to learn all digitals jobs with a good family spirit and game way.
 - 👀 I' interested in code !
 - 🌱 I'm currently learning aal things about development and specifically ho to learn it.
 - 🗺 I'm looking to collaborate on many projects to see all the methodoly development in the world, good luck for me !
